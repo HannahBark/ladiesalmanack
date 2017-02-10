@@ -9,4 +9,4 @@ Project by Hannah Barker & Anna Barnett-Jefferson
 
 [Background](/ladiesalmanack/background.html)
 
-[Mythology](ladiesalmanack/myth.html)
+[Mythology](/ladiesalmanack/myth.html)
