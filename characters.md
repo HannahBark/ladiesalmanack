@@ -1,3 +1,3 @@
 # Characters 
 
-[Back to home](/ladiesalmanack/)
+[Back to Home](/ladiesalmanack/)
