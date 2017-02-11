@@ -1,6 +1,6 @@
 # January 
 
-[Back to Months](/ladiesalmanack/months/)
+[Back to Months](/months/)
 
 [Back to Home](ladiesalmanack/) 
 
