@@ -10,3 +10,5 @@ Project by Hannah Barker & Anna Barnett-Jefferson
 [Background](/ladiesalmanack/background.html)
 
 [Mythology](/ladiesalmanack/myth.html)
+
+[Annotated Bibliography](/ladiesalmanack/bibliography.html) 
