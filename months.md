@@ -1,6 +1,6 @@
 # Months
 
-[January](ladiesalmanack/january.html)
+[January](/january.html)
 
 
 [Back to Home](/ladiesalmanack/) 
