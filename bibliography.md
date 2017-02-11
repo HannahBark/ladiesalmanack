@@ -20,6 +20,9 @@
 
 7. The Truth About Homosexuality: The Cry of the Faithful (John F. Harvey) BX2347.8 .H65 H38 1996
 	This source took up the opposite viewpoint as Barnes, but still proved to be useful in the fact it gave the side of the opposing idea of homosexuality. The author used a form in which he described scenarios of women who had difficult due to their homosexuality. The author supports a life of religious practice as a “cure”.
+	
+![bib](https://lh3.googleusercontent.com/-_uDA8qd-24Y/WJ-gHs0clGI/AAAAAAAAAG4/cc5NeL5EyuckCwXxinOl8zZD6imBUtVkwCLcB/s0/bib.jpg "bib.jpg")
+
 
 
 [Back to Home](/ladiesalmanack/) 
