@@ -1,10 +1,12 @@
 # Annotated Bibliography
 
 1. Homosexuality & Civilization (Louis Crompton) HQ76.25 .C76 2003
-	This source was very useful in this project. The book is fairly large and is separated into different civilizations and their practices. The book is very much like a textbook with structured chapters and many pictures. The source explained in one section how Jesus himself was silent on the topic of homosexuality. 
+
+This source was very useful in this project. The book is fairly large and is separated into different civilizations and their practices. The book is very much like a textbook with structured chapters and many pictures. The source explained in one section how Jesus himself was silent on the topic of homosexuality. 
 
 2.  Female Homosexuality: A Psychodynamic Study of Lesbianism ( Frank S. Caprio ; foreword by Karl M. Bowman) HQ73 .C3 1967 
-	This source compared to Barnes’ work easily. Some of the chapter theme in Ladies Almanack were similar in this source, like diseases and personality traits. The book is structured in chapters and goes through the history of homosexuality and studies on the lifestyle.
+
+This source compared to Barnes’ work easily. Some of the chapter theme in Ladies Almanack were similar in this source, like diseases and personality traits. The book is structured in chapters and goes through the history of homosexuality and studies on the lifestyle.
 
 3. Homosexuality, a History (Vern L. Bullough) HQ76.25 .B84
 	This source was good evidence for the support of homosexuality. The source put verses back into context in the Bible to show modern day religious people were stripping away the true meaning for their own agenda. The book has sections on homosexuality on different parts of society, like law, school, and church. The book uses history figures as well as verses. 
