@@ -23,6 +23,8 @@ Barnes structures April in the same a doctor’s diagnosis is organized: side ef
 ## June
 ![june](https://lh3.googleusercontent.com/XDCUP8QEy4VT0F1lvSPyydV2bbm2fUiYR_R0hSbWR5UPayYNeZJ97SVUND_4QX6z9uU5efw=s0 "june")
 
+June is set up as a poem, followed by a scene of dialogue between Doll and Musset. While going “for a walk”, Doll brings up the biblical character of Jezebel. In the Bible, Jezebel was a scheming, evil woman who used her body to her advantage. Doll tells a story of Jezebel leaning out a window to seduce Sheba, but ultimately calling out her “last Uoo Hoo.” In 2 Kings, Jezebel was tossed out a window to her death. As the guards went to bury her “they found no more of her than the skull and the feet and the palms of her hands.” A prophet proclaimed that it would be her dogs that would eat her, creating a dirty, depressing legacy. In this section, Doll is becoming a pessimist. She is concerned with death in all aspects of her life, talking about it on walks with her love. Doll created a love story between Jezebel and Sheba and still mentioned Jezebel’s death of the window. Doll understands that no matter how she lives or who she loves, she will die in the end. 
+
 
 ## July
 ![july](https://lh3.googleusercontent.com/-RqFBUGx5BIM/WJ-EgKLE3lI/AAAAAAAAAGA/4asqNDxuGn4cPw2W5oxL6UJGQYrmdILxgCLcB/s0/july.jpg "july")
