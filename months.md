@@ -10,6 +10,7 @@ February is structured as a “love letter for a present.” The reader can unde
 
 ## March 
 ![march](https://lh3.googleusercontent.com/-Cz3UFriVmnI/WJ-E1yywHjI/AAAAAAAAAGI/Ln5hZa58JUAtWohYCdxIiI6tbKsveMj-ACLcB/s0/march.jpg "march")
+
 In March, two new characters are introduced, Lady Buck-and-Balk and Tilly-Tweed-in-Blood, and they question the “Good Dame Musset” over tea.The conversation is over lesbianism, “bosom to bosom”, and Barnes takes another opportunity to use the Bible as her own resource for Ladies Almanack. Lady exclaims about a “rib gone astray”; this refers to the story of creation in Genesis. God “made a woman from the rib he had taken out of the man” and gave Adam a helper and wife. Barnes could be poking fun that churches claim women were made to serve man, and now women are loving women with no men in the equation. In “Female Homosexuality: A Psychodynamic Study of Lesbianism”, Caprio argues that women are homosexual than men, and that lesbianism is more common in society. Barnes’ book encourages this fact by excluding men from the work and lifting up the idea of female love. 
 
 
