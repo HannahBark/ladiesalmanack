@@ -21,6 +21,8 @@ Barnes structures April in the same a doctor’s diagnosis is organized: side ef
 
 ## May 
 
+Barnes uses this chapter to introduce another character named Bounding Bess and convey her admiration of powerful women throughout history. After observing Bess for a moment, Dame Musset learns that Bounding Bess is just another woman that studies written history and does nothing with the information but spout random facts whenever she gets the chance. Musset explains how she used her promiscuity to learn about more history than they have written in books. Barnes is comparing the legitimacy of written history to oral history.
+
 ## June
 ![june](https://lh3.googleusercontent.com/XDCUP8QEy4VT0F1lvSPyydV2bbm2fUiYR_R0hSbWR5UPayYNeZJ97SVUND_4QX6z9uU5efw=s0 "june")
 
