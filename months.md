@@ -1,7 +1,7 @@
 # Months
 
 ## January
-Barnes uses January, a cold, frigid month, to represent the old, traditional views of the church. She introduces the character of Patience Scalpel who “could not understand women and their ways.” Patience belongs in the past. This specific past is the way of religious people and churches. In “The Truth About Homosexuality: The Cry of the Faithful”, John Harvey has the same view as Patience, that homosexuality is sin and “above” and “before” him. In his work, he contrasts different women’s scenarios to their past of homosexuality to explain his argument that the lifestyle is destructive. Barnes writes Patience in a particular way that the reader would assume Patience has that attitude as well. 
+Barnes uses January, a cold, frigid month, to represent the old, traditional views of the church. She introduces the character of Patience Scalpel who “could not understand women and their ways.” Patience belongs in the past. This specific past is the way of religious people and churches. In “The Truth About Homosexuality: The Cry of the Faithful”, John Harvey has the same view as Patience, that homosexuality is sin and “above” and “before” him. In his work, he contrasts different women’s scenarios to their past of homosexuality to explain his argument that the lifestyle is destructive. In “Homosexuality, Power & Politics ,” a section includes the observation that women are condemned as whores when they have sexual desires, while men are simply natural when they have the same urges. Patience calls the women in this chapter “sluts”, showing she has the same beliefs described in this section. Barnes writes Patience in a particular way that the reader would assume Patience has the mindset of the past. 
 
 
 ## February 
