@@ -16,6 +16,7 @@ In March, two new characters are introduced, Lady Buck-and-Balk and Tilly-Tweed-
 
 ## April 
 ![april](https://lh3.googleusercontent.com/NXfYPnLYhaa8Y1h-MJX5Mo2ufy58x_Ezj4xOJFv-qhputUAQQDkIluC0-_riOpOXhmHdCyc=s0 "april")
+
 Barnes structures April in the same a doctor’s diagnosis is organized: side effects. The first few lines of the chapter include a “brief of though, cut of concentration.” Diseases or sicknesses have similar symptoms like “restlessness at night” like in April. Barnes could be comparing homosexuality to a disease, like the traditional and modern day church would do. In “Female Homosexuality: A Psychodynamic Study of Lesbianism”, Caprio refers to homosexuality as the “hidden disease”, highlighting what others think of the lifestyle. The church would agree with this argument; Barnes chooses to mock that fact. 
 
 ## May 
