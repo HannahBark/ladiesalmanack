@@ -33,6 +33,8 @@ June is set up as a poem, followed by a scene of dialogue between Doll and Musse
 ## August
 ![august](https://lh3.googleusercontent.com/-wuGQ2iqbsr4/WJ-EWRUG6UI/AAAAAAAAAF4/7pmAz8CyODMrcmsDH5x6VoA-Uygvyv9LQCLcB/s0/august.png "august")
 
+In August, Musset is becoming more irritated than previous chapters. The reason could be a depressed lover or the traditional views of the world holding back her heroic cause, but Barnes does not state directly. Both reasons fit the context and flow of the chapters. In August, Barnes brings up the Bible once again in Musset’s voice. Dame says that the “Camel is forever facing a needle.” The book of Matthew says that “For it is easier for a camel to go through the eye of a needle than for a rich man to enter the kingdom of God.” Although the content of the two statements are different, Barnes is still mimicking the holy word to her advantage and to create a tone that is cutting (to the church) and deep (to the readers). Barnes is showing that she is against the religious people that accuse homosexuality as being “sin against nature”, as stated in “Homosexuality, a History” by Vern L. Bullough. She also wants her readers to know she is not ignorant of the scriptures; she understands them and molds the verses into her form of religion. In “Homosexuality & Civilization”, Crompton explains that many readers misinterpret biblical passages to achieve their own goal. Barnes is doing just that on purpose for her book celebrating women and free love. 
+
 ## September 
 
 ## October 
