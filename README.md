@@ -1,5 +1,5 @@
 # _Ladies Almanack_
---------------------
+-----------------
 Project by Hannah Barker & Anna Barnett-Jefferson
 
 _Ladies Almanack_ is a celebration of women and the opportunity to love others freely. Djuna Barnes wanted her readers to grasp the idea that love is not limited to a man and women. In her work, she uses religious diction and biblical references to mock the church, the very institution that had the chance to accept homosexuality but rejected it. Through verses and biblical passages, we will demonstrate that Barnes used her chapter structures, certain phrases, and characters to force the church out of the lives of people everywhere. 
