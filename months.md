@@ -47,6 +47,7 @@ September is a written as an observation of the natural stages of life. Barnes w
 ## November 
 
 ## December 
+![dec](https://lh3.googleusercontent.com/-215b33ZMq7Q/WKGyLeHlTDI/AAAAAAAAAIg/qvFX1UWzyZ4RlxyeWND9tzM0m-eJmo_UQCLcB/s0/dec.jpg "dec.jpg")
 
 
 [Back to Home](/ladiesalmanack/) 
