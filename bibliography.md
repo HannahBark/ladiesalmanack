@@ -20,6 +20,9 @@ This source was helpful in the mythology section of the project. The chapters an
 
 7. The Truth About Homosexuality: The Cry of the Faithful (John F. Harvey) BX2347.8 .H65 H38 1996
 This source took up the opposite viewpoint as Barnes, but still proved to be useful in the fact it gave the side of the opposing idea of homosexuality. The author used a form in which he described scenarios of women who had difficult lives due to their homosexuality. The author supports a life of religious practice as a “cure”.
+
+8. The Cambridge Guide to Literature in English Third Edition (Edited by Dominic Head)		
+This source was helpful with giving a small biography on Barnes and information Hannah didn't include. It gave a quick summary of her life before becoming a poet Post-War and some of her poems and books that's bee published.
 	
 ![bib](https://lh3.googleusercontent.com/-_uDA8qd-24Y/WJ-gHs0clGI/AAAAAAAAAG4/cc5NeL5EyuckCwXxinOl8zZD6imBUtVkwCLcB/s0/bib.jpg "bib.jpg")
 
