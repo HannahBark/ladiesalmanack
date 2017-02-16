@@ -32,6 +32,8 @@ June is set up as a poem, followed by a scene of dialogue between Doll and Musse
 ## July
 ![july](https://lh3.googleusercontent.com/-RqFBUGx5BIM/WJ-EgKLE3lI/AAAAAAAAAGA/4asqNDxuGn4cPw2W5oxL6UJGQYrmdILxgCLcB/s0/july.jpg "july")
 
+The month of July is narrated by an unknown maid that is currently writing a love letter and confessing her love to another unknown maid. This chapter compares the love of a man and the love of a woman. When a man is in love he typically gives his love a name of endearment such as "Honey Lou", "Snooky Dear", or "my great big, beautiful bedridden Doll." When a woman is in love she cares more about her loves wellbeing and health. Later on in the chpater Barnes uses the example "..should her Honey-heart hang mincemeat Tartlets about her Waist for a Girdle.." to show that love will make people do crazy things they wouldn't normally do. 
+
 ## August
 ![august](https://lh3.googleusercontent.com/-wuGQ2iqbsr4/WJ-EWRUG6UI/AAAAAAAAAF4/7pmAz8CyODMrcmsDH5x6VoA-Uygvyv9LQCLcB/s0/august.png "august")
 
@@ -44,10 +46,15 @@ September is a written as an observation of the natural stages of life. Barnes w
 
 ## October 
 
+In this chapter Dame Musset is describing how she would create her perfect partner, made out of pieces from her previous ones. "If I would have my Scullion's Eye lie in the Head of Billings-On-Coo, with the Breasts of Haughty  on the Hips of Doll, on the Leg of Moll, the the Shins of Mazie, under the Scullion's Eye which lies in the Head of Billings-On-Coo. The Buttocks of a girl I saw take a slip and slither one peelish day in Fall...." Musset is heartbroken over Doll breaking up with her in June and she's trying to move on, but Patience Scalpel only gives her bad advice to sleep with a big, strong man, instead of constantly dealing with women because Patience feels that a man can fill what a woman can't.
+
 ## November 
+
+Musset is portrayed as a slightly crazy woman that is now fify years old and telling young women that love is pointless because it will only lead to heartbreak and that they should focus on becoming wiser. Musset now knows the positives and negatives of love and she feels that since she has gained so much knowledge, she should share her information with those in their twenties because she doesn't want more women to become like her, old, alone, and miserable. Musset even goes so far as to stop two girls and tries to relay her message.
 
 ## December 
 ![dec](https://lh3.googleusercontent.com/-215b33ZMq7Q/WKGyLeHlTDI/AAAAAAAAAIg/qvFX1UWzyZ4RlxyeWND9tzM0m-eJmo_UQCLcB/s0/dec.jpg "dec.jpg")
 
+Unfortunately Dame Musset has passed and this chapter is either her narrating her own funeral or Musset is visualizing how she wants her funeral to be ran and how she wants people to react. She talks about how a baby can only be born of a hand or foot, but people can die and be buried in a multitude of ways. "..plan differently, for if you burn me first, how hsall you lay me out for shriving, and how if you drop me in Ocean, can you also bind me with Earth?" Musset believes that humans are made from the Earth, birthed from women and, depending on how you return, you might not become one with it again. Barnes could have also used this chapter and Musset to explain how she wants her funeral to be; Attended by many, forty women with shaved heads, buried in the capital, and one with the Earth.
 
 [Back to Home](/ladiesalmanack/) 
